@@ -1,0 +1,1 @@
+# Lucid-fullproject-as-7th-assignment
